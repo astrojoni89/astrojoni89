@@ -1,5 +1,5 @@
 ### Welcome 👋
-![maggie filament](https://github.com/astrojoni89/astrojoni89/)
+![maggie filament](https://github.com/astrojoni89/astrojoni89/data/mpia-pr_maggie_syed_2021_fig3.jpg)
 
 
 
